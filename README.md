@@ -1,0 +1,1 @@
+# AI-Powered-Manga-Background-Generator-for-Fan-Translations
